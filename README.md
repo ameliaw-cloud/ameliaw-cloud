@@ -2,7 +2,7 @@
 - 👀 I’m interested in neuroscience
 - 🌱 I’m currently learning neuroscience
 - 💞️ I’m looking to collaborate on neuroscience
-- 📫 How to reach me ameliawhite@gmail.com
+- 📫 How to reach me ameliawhite@brandeis.edu
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: florida is the flattest state
 
